@@ -1,5 +1,5 @@
-# [Рабочее зеркало для кинопаба](https://zerkalo.shop)
+# [Рабочее зеркало для кинопаба](https://zerkalo.xyz)
 
-# zerkalo.shop
+# zerkalo.xyz
 
 С любыми вопросами пишите нам в support@kino.pub и мы поможем!
