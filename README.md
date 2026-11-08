@@ -1,4 +1,4 @@
-# [Рабочее зеркало для кинопаба](https://zerkalo.xyz)
+# [Рабочее зеркало для кинопаба](https://zerkalo.ink)
 
 # zerkalo.ink
 
